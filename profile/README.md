@@ -2,10 +2,6 @@
 
 All of these projects are personally approved by Nate. Nate takes 100% responsibility for all projects that come out of this organization.
 
-```
-Let me explain something to you. Your whole life you've been an ugly chick but now suddenly you're a hot chick,
-with big t*ts and small nxpples. So guys like that are gonna keep coming around. Don't be a slut, Richard.
-```
 
 
 ## Rules of the Org:
